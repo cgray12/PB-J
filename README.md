@@ -1,2 +1,2 @@
 # PB-J
-JIF is the best
+Crunchy is the best
